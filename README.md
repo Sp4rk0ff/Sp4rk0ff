@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sp4rk0ff
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning at school
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me -----
